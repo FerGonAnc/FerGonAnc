@@ -9,6 +9,6 @@ About me:
 - 📫 How to reach me: [LinkedIn]([https://www.linkedin.com/in/fgonzalesanchorena/]).
 - 💻 [My Github profile]([url](https://github.com/FerGonAnc)).
 - 💬 Ask me about: Data, B2B campaigns, and digital marketing
-
+https://www.linkedin.com/in/fgonzalesanchorena/
 
 
